@@ -1,0 +1,2 @@
+# IA
+Merdas de IA
